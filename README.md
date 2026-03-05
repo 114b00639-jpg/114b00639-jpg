@@ -1,5 +1,8 @@
-## Hi there 👋
+## Hi I am zhen
 
+- 📫 My email is 114b00639@mailst.cjcu.edu.tw
+- 😄 Pronouns: pretty girl
+- 👯 I like eat meat.
 <!--
 **114b00639-jpg/114b00639-jpg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

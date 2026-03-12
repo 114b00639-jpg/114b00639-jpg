@@ -3,7 +3,7 @@
 - 📫 My email is 114b00639@mailst.cjcu.edu.tw
 - 😄 Pronouns: pretty girl
 - 👯 I like eat meat.
-<!--
+<- 🔭My IG:zhen02.27 
 **114b00639-jpg/114b00639-jpg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
